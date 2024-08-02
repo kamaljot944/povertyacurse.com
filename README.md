@@ -1,0 +1,1 @@
+# povertyacurse.com
